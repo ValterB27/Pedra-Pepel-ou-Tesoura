@@ -1,0 +1,1 @@
+# Pedra-Pepel-ou-Tesoura
